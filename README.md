@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ mariam Haitham ... Eid
+- 👀 I’m interested in codeing :) ..
+- 🌱 I’m currently learning in 42Abu Dhabi
+- 📫 How to reach me meid@student.42Abudhabi.ae
